@@ -15,7 +15,6 @@ _ Don't have any plans for this github, as I am rarely ever going to touch this 
 
 _ Straw.page is in wip, keep an eye on patreon or my GitHub for the link. If I'm too busy, don't keep waiting for it.
 
-![pngtree-cute-minimalist-flower-line-art-png-image_6095288](https://github.com/user-attachments/assets/52dedafa-707d-48a3-9668-6b67dbe04d2e)
 
 # More information ...
 
