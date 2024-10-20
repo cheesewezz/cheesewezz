@@ -1,6 +1,6 @@
 #   Howdy, welcome to my GitHub, take a seat and relax.
 
-[GO TO MY PATREON!](https://www.patreon.com/c/user/about?u=85089921) . [WHAT ABOUT MY PRONOUNS PAGE?](https://en.pronouns.page/account) . [OOH! AND MY ATA.BOOK PLEASE!](https://zxioide.atabook.org/)
+[GO TO MY PATREON!](https://www.patreon.com/c/user/about?u=85089921) . [WHAT ABOUT MY PRONOUNS PAGE?](https://en.pronouns.page/@zxioide) . [OOH! AND MY ATA.BOOK PLEASE!](https://zxioide.atabook.org/)
 
 ....
 
