@@ -1,6 +1,6 @@
 #   Howdy, welcome to my GitHub, take a seat and relax.
 
-[GO TO MY PATREON!](https://www.patreon.com/c/user/about?u=85089921) . [WHAT ABOUT MY PRONOUNS PAGE?](https://en.pronouns.page/@zxioide) . [OOH! AND MY ATA.BOOK PLEASE!](https://zxioide.atabook.org/)
+[GO TO MY PATREON!](https://www.patreon.com/c/user/about?u=85089921) . [WHAT ABOUT MY PRONOUNS PAGE?](https://en.pronouns.page/@zxioide) . [OOH! AND MY ATA.BOOK PLEASE!](https://zxioide.atabook.org/) [CHECK OUT MY STRAW.PAGE!](https://zxizide.straw.page/)
 
 ....
 
@@ -12,8 +12,6 @@ _ Don't have any plans for this github, as I am rarely ever going to touch this 
   > GitHub will stay this way unless necessary action.
 
 ....
-
-_ Straw.page is in wip, keep an eye on patreon or my GitHub for the link. If I'm too busy, don't keep waiting for it.
 
 
 # More information ...
