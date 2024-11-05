@@ -4,9 +4,9 @@
 
 ....
 
-- _ I go by many names, if you're a stranger and have yet to know what to call me; zxioide, zxphoid and zvix (zvixocrhome) is what I go by.
+- _ I go by many names, However I just prefer anything along the lines of zxphoid, zxioide, zvi. 
 
-  > zvixochrome is a new name, use it wisely
+  > zvi is a new name, use it wisely, because I will not notice anyway, haha
 
 _ Don't have any plans for this github, as I am rarely ever going to touch this again, lol.
   > GitHub will stay this way unless necessary action.
@@ -21,10 +21,15 @@ _ Male Individual : If pronouns are mistaken, I do not mind. He / Him are most p
 _ Insomniac (active around 9 AM to 12 AM) ... may not be online after 12 unless something has caught my eye.
 
 _ I'm a metal head, I like rock, guitars, and drums. I play acoustic myself 
+> I am also a mental head, I'm an insane lil' bugger
+
 
 _ I take interest in dragons, horses, mythical creatures, and more. I like animals is what I'm trying to say.
 
-_ I am an artist, I would love to do comissions for some mullah /j
+_ I am an artist, not good, but I am one. I post my art on Patreon, patreon alone.
+
+
+
 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⡀⣀⣴⡯⠖⣓⣶⣶⡶⠶⠂⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
@@ -68,6 +73,7 @@ _ I may not be active on pony town a lot, you're going to have to wait until I c
 _ DNI Criteria still stands, stand by it too.
 
 _ Crowns through whispers only (so I can see it. If I'm on tab, feel free to crown me anytime)
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+
+_ I don't use tone tags, if you'd like me to use them, ask me first.⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 **that's all for now, see you later, partner**
