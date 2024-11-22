@@ -19,8 +19,7 @@ I post my art on patreon, and patreon alone. I can't guaurentee how good it is, 
 I am active around 9 AM to 12 AM. The hours range by what time I wake up, normally its around 10 AM to 12AM
 ═══════════════════════════════════════════════════════════════════════════════════════════
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&redirect=true)
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&redirect=true)
 If you see me listening to Black Hole Sun, please tally up the points /j
 
 I really *MOSTLY* like rock music, however, I tend to like everything except present day country. I'd rather prefer oldies
