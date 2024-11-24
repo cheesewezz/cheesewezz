@@ -8,7 +8,7 @@
 
 *Here are some of my most common links. However, I'm putting more below.*
 
-[PATREON PAGE](patreon.com/user?u=85089921) . [STRAW.PAGE](https://bhszx1.straw.page/) . [DISCORD USER](https://www.youtube.com/watch?v=OgZzUJud3Q4)
+[PATREON PAGE](https://www.patreon.com/c/user/posts?u=85089921) . [STRAW.PAGE](https://bhszx1.straw.page/) . [DISCORD USER](https://www.youtube.com/watch?v=OgZzUJud3Q4)
 
 I hope to spread my social media more wherever I go, once I'm comfortable at least :)
 | 
@@ -45,6 +45,7 @@ My entire live, I've been an artist. Traditional, Digital, and making art from l
 1. Please whisper me first if any issues, conflicts, or drauma leaks through the threads. I handle personal matters in private to not drive panic amongst the others in Pony Town. If it is an emergency, you may ask for my Discord, and only for that reason only.
 2. I do NOT use tone tags that commonly. If you would rather prefer me to use tone tags, please ask ahead so I know, I can't read your mind.
 3. You can crown me in whispers, however only in whispers depending if I'm not offtab.
+
 4 I do not tolerate, or encourage you to put inapropriate comments, or art on any of my social medias. Not that it hasn't happened yet, but just to get you aware. 
 
 5. finally, do not interact critera stands, I stand by it, so you should as well.
