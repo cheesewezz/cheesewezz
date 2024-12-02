@@ -23,17 +23,19 @@ I am a male individual. I prefer he/him but if mistaken I don't care. maybe a li
 
 I am an introvert. I don't communicate well and tend to stay in my lane. If you want to come talk to me, don't be shy! I might be though /silly
 
+# MUSIC PORTION
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&cover_image=true&theme=novatorem&show_offline=true&background_color=444040&interchange=true&bar_color=bdcbd6&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&redirect=true) if you see me listening to Black Hole Sun, track it down on a counter! /j
 
 >I mostly love rock music, MOSTLY because it's my life. I do like other singers, but I do not like modern day country. I prefer the oldies.
 
 ________________________________________________________________________
 
-![spirited-away](https://github.com/user-attachments/assets/5780a718-33e1-4f4c-9a08-1cb69c75dae8)
+# FINALLY THE LAST FEW OF INFO ![dragon-fighting](https://github.com/user-attachments/assets/73e3752d-6850-48fa-b35e-1738d829e828) 
 
+>More Information about The Legendary Black Hole Sun. Black Hole Sun has many forms, but he is commonly known in his dragon humanoid form. He can take shape of a human, and a slithery serpant like dragon such as the ones here in my Github. But I'd like to think of how he looks like Dinraal from The Legend Of Zelda. Black Hole Sun has a full name that is more "godly" and powerful and that is: Blaholik, the Eclipse God of darkness and Pulling destructive black holes. Blaholik is also from a universe where dragons roam through space and protect galaxies, and planets. Blaholik is in charge of Solar Eclipses black holes, and worm holes. However he is not responsible for Ton 618 and Phoenix A for those are his parents he descended from. Finally, Blaholik has a sister named Slounair, the goddess of lunar eclipses, and rust of moons. She descended from different parents, but different dad. They are enemies, and would go at eachothers throats every blood moon or solar eclipse. 
 
-# FINAL INFORMATION   
-
+________________________________________________________________________
 
 1. I am not always active. I'm mostly offtab, not home, or in the bathroom or something. This goes for anything; you can whisper me in game and wait for my reply. If I am however present in pony town, you can say it in public. That includes crowns, same goes, same goes.
 2. If there is an emergency, or something that I need to know privately or taken into a private area... you can ask for my discord and ONLY for that reason only. I will help as best as I can and will give back in return. Always ask first, I promise I don't bite.
