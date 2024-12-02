@@ -1,6 +1,11 @@
 ![anastasradonski-fluffy-dragon-pixel-animated-art-gif-commission](https://github.com/user-attachments/assets/5155340f-9f63-40e0-b979-dcb69f7da642)
 
 # Howdy Partner, welcome to my GitHub. Settle down, this is quite short anyway.
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&cover_image=true&theme=novatorem&show_offline=true&background_color=444040&interchange=true&bar_color=bdcbd6&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&redirect=true) if you see me listening to Black Hole Sun, track it down on a counter! /j
+
+>I mostly love rock music, MOSTLY because it's my life. I do like other singers, but I do not like modern day country. I prefer the oldies.
+
 ________________________________________________________________________
 
 Links are down below, however, here are my top three you should check out!
@@ -23,7 +28,3 @@ I am a male individual. I prefer he/him but if mistaken I don't care. maybe a li
 I am an introvert. I don't communicate well and tend to stay in my lane. If you want to come talk to me, don't be shy! I might be though /silly
 
 ________________________________________________________________________
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&cover_image=true&theme=novatorem&show_offline=true&background_color=444040&interchange=true&bar_color=bdcbd6&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&redirect=true) if you see me listening to Black Hole Sun, track it down on a counter! /j
-
-I mostly love rock music, MOSTLY because it's my life. I do like other singers, but I do not like modern day country. I prefer the oldies.
