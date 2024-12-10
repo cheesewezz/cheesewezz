@@ -1,5 +1,6 @@
 
-![roblox-pressure-predsure-game](https://github.com/user-attachments/assets/38b4390c-44bf-4eff-9a85-054975f60216)
+![giphy](https://github.com/user-attachments/assets/e0451b95-a235-49fb-b137-6423efbdd6c2)
+
 
 # Hello strangers, or maybe friends! Welcome To My Github.
 perhaps I should share the same amount that is on my patreon, just a little smaller!
@@ -14,16 +15,15 @@ Here are some of the links I recommend you check out or take a gander at. There 
 
 # IDENTITY INFORMATION 01
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&redirect=true) If you catch me listening to Black Hole Sun, count it up /joking
+
+I really love Rock music because it's been in my life since. I still like other types of music, but not modern day country, I prefer oldies.
+
 I am a [male](https://en.pronouns.page/@zxioide) individual. I go by the standard he/him pronouns, except I'm not *him* /j
 
 I go by many names, but if you're a stranger feel free to call me zxioide, zwrath, or either Sabatour, or *Black Hole Sun*
 
 > zwrath was inspired by Whittys lore how he was called *Wrath* at some point.
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&redirect=true) If you catch me listening to Black Hole Sun, count it up /joking
-
-I really love Rock music because it's been in my life since. I still like other types of music, but not modern day country, I prefer oldies.
-
 
 I am an **insomniac**, I'm normally active around 10/9 AM to 12AM, if I'm up later than that then I'm probably engaging in something else then regarding my chronically-online-self.
 
@@ -33,7 +33,7 @@ I am an introvert, I actually am more wild and energetic online, but I promise y
 
 ────────────────────────────────────────────────────────────────────────
 
-# Additional, and Final Information  ![sebastian-solace-spin](https://github.com/user-attachments/assets/867e30a1-566b-4d51-af37-141392c249a7)
+# Additional, and Final Information ![0010e299dfd3d4a79511b7c8c1f088ff](https://github.com/user-attachments/assets/e8c22b1f-afb4-409a-ae5c-e991fe814713)
 
 
 
@@ -48,6 +48,7 @@ I am an introvert, I actually am more wild and energetic online, but I promise y
 ────────────────────────────────────────────────────
   
    # Byeee /ref
+![200w](https://github.com/user-attachments/assets/7332f0c4-3038-42de-ba86-7d440c76eb4b)
 
-![keep-up-sebastian-solace](https://github.com/user-attachments/assets/f473854f-00fc-4558-b34d-3bdae27f962f)
+
 
