@@ -1,6 +1,4 @@
-
-![giphy](https://github.com/user-attachments/assets/e0451b95-a235-49fb-b137-6423efbdd6c2)
-
+![running-horse](https://github.com/user-attachments/assets/c3be5708-e5d7-40b0-b663-e3614c74af7d)
 
 # Hello strangers, or maybe friends! Welcome To My Github.
 perhaps I should share the same amount that is on my patreon, just a little smaller!
