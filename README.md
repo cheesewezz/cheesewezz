@@ -1,4 +1,5 @@
-![running-horse](https://github.com/user-attachments/assets/c3be5708-e5d7-40b0-b663-e3614c74af7d)
+
+![tumblr_a4a15876d27a023f9ab9b77ada14f770_8fbab1f9_500](https://github.com/user-attachments/assets/0c4c27a1-b26b-4e7a-8bb2-7cf492f80f0d)
 
 # Hello strangers, or maybe friends! Welcome To My Github.
 perhaps I should share the same amount that is on my patreon, just a little smaller!
@@ -31,7 +32,7 @@ I am an introvert, I actually am more wild and energetic online, but I promise y
 
 ────────────────────────────────────────────────────────────────────────
 
-# Additional, and Final Information ![0010e299dfd3d4a79511b7c8c1f088ff](https://github.com/user-attachments/assets/e8c22b1f-afb4-409a-ae5c-e991fe814713)
+# Additional, and Final Information ![TotK_Dinraal's_Horn_Icon](https://github.com/user-attachments/assets/27391ef3-a99f-435d-8a48-739c51e4583d)
 
 
 
@@ -46,7 +47,6 @@ I am an introvert, I actually am more wild and energetic online, but I promise y
 ────────────────────────────────────────────────────
   
    # Byeee /ref
-![200w](https://github.com/user-attachments/assets/7332f0c4-3038-42de-ba86-7d440c76eb4b)
 
-
+![7b2b9c0a-2718-478e-85c4-3a03a9083215](https://github.com/user-attachments/assets/98e0201a-1a2b-4991-904a-1c256dede45f)
 
