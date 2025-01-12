@@ -46,7 +46,26 @@ on that note, I HAVE FORGOTTEN ABOUT NICKNAMES, GAH!
 
 Feel free to call me a various kind of nicknames if you're close. If you have just met me just call me zxioide, kino/kinorino, or just literally Black Hole Sun.
 
+______________________________________________________________________________________________
+
+<h3 align="center">ᴛᴏ ᴛʜᴇ ᴠᴇʀʏ ᴇɴᴅ</h3>
+
+I guess that's it, I intended this to be short since I know a majority of you won't read all of it. I just would like to add a few more things and put more things down before I take my leave.
+1. If there are any issues that need to be brought to my attention please ask me and talk to me privately, I will also ONLY then give out my discord so we could discuss on the matter without making pony town more problematic as it already is.
+
+<img align="left" width="100" height="100" src="https://i.gifer.com/origin/b8/b8a7c221b170f311fa7b3d1440acae2f_w200.gif">
+
+   
+3. I prefer if you whisper me if you have any compliments or crowns if I'm not on tab. If I AM on tab, then go crazy!
+4. I mainly post art on Patreon and Bluesky, for there should not be anywhere else where my art is posted (might be posting a tumblr blog soon). If you spot my art on another platform that isn't from a user that alligns to my own please let me know.
+5. I am a big RDR fan, if you walk around with a RDR oc or character I'm going to chase after you and strangle you /pos
+6. I do not lend out my supporter.
+
+ ______________________________________________________________________________________________
+<h4 align="center">Goodbye, boah</h4>
 
 
-
-
+<p align="center">
+  <img width="460" height="300" src="https://i.pinimg.com/736x/ae/44/50/ae4450c1b5dbb55bafccd63be11c6e51.jpg">
+</p>
+   
