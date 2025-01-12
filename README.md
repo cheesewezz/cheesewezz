@@ -28,11 +28,23 @@ I indulge in a bunch of music, but I *mainly* listen to guitar related music. Ro
 <img align="right" width="100" height="100" src="https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExb2Z6b2k0MmtqdmRpZ25ndGRtb292amNvdHpsbzNhYWxydXM3Y2x6dyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/iHtXIZgKU75OHW2YHE/giphy.webp">
 If you see me listening to a specific band that alligns my Pony Town skin, you should put it on a counter since music is my biggest inspiration for my creations /silly
 
-_______________
 
 <h4 allign="center">Identity information</h4>
+
 _______________
 
+<img align="left" width="100" height="100" src="https://i.pinimg.com/originals/69/3a/ff/693afface4f6c127a54d4126634647d5.gif">
+
+I am a male individual and go by the standard he/him pronouns. If you don't really know me and mistaken my pronouns I won't take it to offense, but I will act offended humorously. I have a case of insomniaosis and a depressed mental (I lack of despondency), If I act out of my place or have been aggressive pay no heed to my behavior. All I need is some time and solace.
+
+I'm normally chronically online, but as of 2025 I have not been as active as much as I've been before of last year. But I swear I won't be coming out every blood moon, smh.
+[I *was* known for doing anonymous questions and opinions as a dragon: Black hole sun oc. If I stay home on week days thats when I host them, on weekeneds it's probably a slight chance of them happening]
+
+Speaking of busyness, I am normally online (if I choose to be) around **10 AM to 12 AM**, If I am up later or past 12 then I am either distracted or just chilling without noticing my end of burning blue light in my eyes.
+
+on that note, I HAVE FORGOTTEN ABOUT NICKNAMES, GAH!
+
+Feel free to call me a various kind of nicknames if you're close. If you have just met me just call me zxioide, kino/kinorino, or just literally Black Hole Sun.
 
 
 
