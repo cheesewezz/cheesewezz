@@ -6,7 +6,7 @@
   <img width="460" height="300" src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExbm1hanV2bWFja3g4ajFsZGZuYmc5aDN2N2FrYTdobWUzNWd2eHZxYiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/w1qiS4vCRCzKM/giphy.webp">
 </p>
 
- :  [ᴘᴀᴛʀᴇᴏɴ](https://www.patreon.com/c/user/posts?u=85089921) . [sᴛʀᴀᴡᴘᴀɢᴇ](https://cheesewezz.straw.page/) . [ᴀᴛᴀʙᴏᴏᴋ](https://zxioide.atabook.org/) . [carrd](https://zxioide.carrd.co/)
+ :  [ᴘᴀᴛʀᴇᴏɴ](https://www.patreon.com/c/user/posts?u=85089921) . [sᴛʀᴀᴡᴘᴀɢᴇ](https://cheesewezz.straw.page/) . [ᴀᴛᴀʙᴏᴏᴋ](https://zxioide.atabook.org/) . [carrd](https://zxioide.carrd.co/) . [tumblr](https://www.tumblr.com/chesswizz?source=share)
   
   `For More Links, look down below and check the rest, same links down below if I may add.`
 
