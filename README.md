@@ -18,7 +18,7 @@
 
 *I also may add that I do not want friends that I have made clear I didn't wish to be in my life, whether for personal reasons or much more.*
 
-  
+  *c+h is welcomed regardless. Feel free to cuddle/hide, don't ask!*
 ______________________________________________________________________________________________
 
 <h3 align="center">ᴄᴇɴᴛʀᴀʟ ᴡᴀʏ</h3>
