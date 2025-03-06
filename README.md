@@ -15,7 +15,7 @@
 
 <h6 align="center"> 
 
-[Patreon](https://www.patreon.com/c/user/posts?u=85089921)  .  [Strawpage]()  .  [Ata.Book](https://zxioide.atabook.org/)  .  [Bluesky](https://bsky.app/profile/cheesewezz.bsky.social)
+[Patreon](https://www.patreon.com/c/user/posts?u=85089921)  .  [Strawpage](https://chezzits.straw.page/)  .  [Ata.Book](https://zxioide.atabook.org/)  .  [Bluesky](https://bsky.app/profile/cheesewezz.bsky.social)
 
 <h6 align="center"> More links are below my profile picture, mostly the same ones.
 c+h is welcomed freely, you don't need to ask, I don't mind at all.</h6>
