@@ -1,7 +1,7 @@
 <h3 align="center">🐺</h3>
   
 <p align="center">
-  <img width="440" height="300" src="https://media.discordapp.net/attachments/1116747850282451045/1346675153974853662/d2b42153b21533d811c449c7952387d3-removebg-preview.png?ex=67c90c78&is=67c7baf8&hm=5f52962996ae456ffcacee032431a55dcea59ce2d09e15cfa1a8cadcb29a96c2&=&format=webp&quality=lossless&width=587&height=421">
+  <img width="200" height="300" src="https://media.discordapp.net/attachments/1116747850282451045/1352176606990569492/download-removebg-preview.png?ex=67dd1019&is=67dbbe99&hm=850039c9ec974d55568eb73ee441816486e2b71f04463a17248c8d8fb3d9822b&=&format=webp&quality=lossless">
 </p>
 
 <h3 align="center"> ENTER, PURSUED BY A MEMORY <h6 align="center"> Welcome To The Github
@@ -32,9 +32,9 @@ c+h is welcomed freely, you don't need to ask, I don't mind at all.</h6>
 
 <h2 align="center"> INSIGHT . INFORMATION
 
-<img align="right" width="190" height="200" src="https://media.discordapp.net/attachments/1116747850282451045/1346698600574615552/c56699a8d54ab508874ea4a6a40612f6-removebg-preview.png?ex=67c9224e&is=67c7d0ce&hm=ffd2ff5526ebb4c499c6e97ff97fe324a0d7163b67ebe34998cbf7a71a05d95a&=&format=webp&quality=lossless&width=421&height=421">
+<img align="right" width="250" height="180" src="https://media.discordapp.net/attachments/1116747850282451045/1352176983303524382/download-removebg-preview_2.png?ex=67dd1073&is=67dbbef3&hm=8ad50cb7693f6514cc40f74395b78119d9acebd7408be3d0c63ea8bfb5a9303f&=&format=webp&quality=lossless">
 
-<h5 align="center"> I am of male origin, I just go by the usual he/him pronouns. I don't care if you mistaken my gender by accident, I'll just playfully act offended and carry on.
+<h6 align="center"> I am of male origin, I just go by the usual he/him pronouns. I don't care if you mistaken my gender by accident, I'll just playfully act offended and carry on.
 
 
 for nicknames, you can call me John, zxioide, cheese, or quite literally bhs (as I am quite known for my Black Hole Sun pony character) I will be linking a [pronouns.cc](https://pronouns.cc/@scarface) to further show what you can call me and my preferences, which are also in my Patreon if the link is not here yet.
