@@ -1,8 +1,3 @@
-<p align="center">
-<img width="100" height="100" src="https://media.discordapp.net/attachments/1116747850282451045/1352384735493488651/0ae0cd06eea272c5399fd10c716d5714-removebg-preview.png?ex=67ddd1ef&is=67dc806f&hm=2b8f7692c9034add9874781b1eb6682f3578ef37cda4b2d4250f10733d5b9fde&=&format=webp&quality=lossless">
-</p>
-
- 
   <p align="center">
   <img width="590" height="400" src="https://media.discordapp.net/attachments/1116747850282451045/1352240041111457843/ef3274b54b15e32b1d75e524dcea707d-removebg-preview.png?ex=67dd4b2d&is=67dbf9ad&hm=392cae6489567c78475b11059ccedf036be332d6974ffb369ad52f7e5503a6ff&=&format=webp&quality=lossless">
 </p>
@@ -81,4 +76,8 @@ my dni's have standards, I suggest you check out my [patreon](https://www.patreo
 
   <p align="center">
   <img width="590" height="400" src="https://i.pinimg.com/736x/f9/5c/c4/f95cc4a54cce939be0e732c64088b2ea.jpg">
+</p>
+
+<p align="center">
+<img width="100" height="100" src="https://media.discordapp.net/attachments/1116747850282451045/1352384735493488651/0ae0cd06eea272c5399fd10c716d5714-removebg-preview.png?ex=67ddd1ef&is=67dc806f&hm=2b8f7692c9034add9874781b1eb6682f3578ef37cda4b2d4250f10733d5b9fde&=&format=webp&quality=lossless">
 </p>
