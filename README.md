@@ -2,7 +2,7 @@
  
  [@DutchCannibalLinde](https://github.com/DutchCannibalLinde) . [@Welcome2Paradise](https://github.com/Welcome2Paradise)
 
- <h6 align="center"> "Blessed are those who value friendship and divining loyalty and unfaltering affection"
+ <h6 align="center"> "Blessed are those who value friendship, divining loyalty, and unfaltering affection"
 
 
 
