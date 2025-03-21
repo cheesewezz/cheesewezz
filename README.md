@@ -6,7 +6,7 @@
   
   "*Some men are born rich enough and dumb enough to enjoy their lives. Ain't nothing fair. You know that*"
 
---
+
 
 ![profileviews](https://komarev.com/ghpvc/?username=cheesewezz&color=green)
 
@@ -23,9 +23,9 @@ more links are under my profile. c+h is welcomed regardless, don't be afraid to 
   
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&redirect=true) 🎧
 
-here you can see what I'm listening to often. Normally I'm listening to rock music, mainly Tool or Type O Negative. I don't like anything else other than rock music (there are a few exceptions)
+here you can see what I'm listening to often. Normally I'm listening to rock music, mainly Tool or Type O Negative. I don't like anything else other than rock music (there are a few exceptions except taylor swift and country music)
 
-If you'd like to recommend me some music I'd love to hear them.
+If you'd like to recommend me some music I'd love to hear them! 
 
 <h3 align="center">About</h3>
 
