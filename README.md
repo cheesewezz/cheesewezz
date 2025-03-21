@@ -1,4 +1,4 @@
-  <p align="center">
+ <p align="center">
   <img width="590" height="400" src="https://media.discordapp.net/attachments/1116747850282451045/1352240041111457843/ef3274b54b15e32b1d75e524dcea707d-removebg-preview.png?ex=67dd4b2d&is=67dbf9ad&hm=392cae6489567c78475b11059ccedf036be332d6974ffb369ad52f7e5503a6ff&=&format=webp&quality=lossless">
 </p>
 
@@ -17,13 +17,15 @@
 
 [patreon](https://www.patreon.com/c/user/posts?u=85089921) . [strawpage](https://chezzits.straw.page/) . [ata.book](https://zxioide.atabook.org/) . [bluesky](https://bsky.app/profile/cheesewezz.bsky.social)
 
-more links are under my profile. c+h is welcomed regardless, don't be afraid to come sit down
+more links are under my profile. 
+
+c+h is welcomed regardless, don't be afraid to come sit down
 
 <h6 align="center">
   
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&redirect=true) 🎧
 
-here you can see what I'm listening to often. Normally I'm listening to rock music, mainly Tool or Type O Negative. I don't like anything else other than rock music (there are a few exceptions except taylor swift and country music)
+I ABSOLUTELY LOVE MUSIC. I love rock music all the way down to some nostaliga. I am almost all the time listening to rock music (that sometimes corresponds to my ponies in Pony Town) I like every type of music, except I strongly don't like Taylor Swift, and I don't like modern Country, I like the old crap
 
 If you'd like to recommend me some music I'd love to hear them! 
 
@@ -58,7 +60,7 @@ I am normally online around 10AM/12AM to midnight. If I am up any later than 12A
 
 my dni's have standards, I suggest you check out my [patreon](https://www.patreon.com/c/user/posts?u=85089921) and scroll down until you see them. Though I may have standards, I block freely, don't take it for granted.
 
-> this will be the remaining text since I know some people don't want to know my lifestory.
+this will be the remaining text since I know some people don't want to know my lifestory.
 
 1. If there are any personal issues that need to be reached to me privately please reach out and whisper me before so, I will only then give you my discord so we can take the issue off pony town since its so largely problematic.
 
