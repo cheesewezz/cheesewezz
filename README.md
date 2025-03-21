@@ -60,7 +60,7 @@ my dni's have standards, I suggest you check out my [patreon](https://www.patreo
 
 > this will be the remaining text since I know some people don't want to know my lifestory.
 
-1. If there are any personal issues that need to be reached to me privatley please reach out and whisper me before so, I will only then give you my discord so we can take the issue off pony town since its so largely problematic.
+1. If there are any personal issues that need to be reached to me privately please reach out and whisper me before so, I will only then give you my discord so we can take the issue off pony town since its so largely problematic.
 
 2. I'd prefer if you'd whisper me when crowning me since I'm always offtab, or not home, OR sleeping. Though, due to countless supporter whispers I had to turn it off. So if you can you can whisper me when they are open or come up to me and go crazy.
 
