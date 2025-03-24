@@ -6,9 +6,6 @@
 
 
 
- <p align="center">
-  <img width="590" height="400" src="https://media.discordapp.net/attachments/1116747850282451045/1352240041111457843/ef3274b54b15e32b1d75e524dcea707d-removebg-preview.png?ex=67dd4b2d&is=67dbf9ad&hm=392cae6489567c78475b11059ccedf036be332d6974ffb369ad52f7e5503a6ff&=&format=webp&quality=lossless">
-</p>
 
 <h6 align="center">
   
