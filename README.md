@@ -1,9 +1,9 @@
 
 <h6 align="center"> 
+
+[@Welcome2Paradise](https://github.com/Welcome2Paradise) . [@DutchCannibalLinde](https://github.com/DutchCannibalLinde) . [@crossington](https://github.com/crossinton) 
  
  *"Blessed Are Those Who Mourn For They Will Be Comforted".*
-
-![](https://komarev.com/ghpvc/?username=cheesewezz&color=orange)
 
 
 <p align="center">
@@ -16,8 +16,7 @@
   <img width="100" height="80" src="https://files.catbox.moe/l6ynfl.png">
 </p>
 
-[patreon](patreon.com/user?u=85089921) . [ata.book](https://zxioide.atabook.org/) . [strawpage](https://chezzits.straw.page/) . [bluesky](https://bsky.app/profile/cheesewezz.bsky.social) [carrd](https://cheesewezz.carrd.co/)
-
+[patreon](patreon.com/user?u=85089921) . [ata.book](https://zxioide.atabook.org/) . [strawpage](https://chezzits.straw.page/) . [bluesky](https://bsky.app/profile/cheesewezz.bsky.social) . [carrd](https://cheesewezz.carrd.co/)
 
 c+h is welcomed regardless. no need to ask, just come on over.
 
@@ -88,6 +87,8 @@ ___
 <p align="center">
   <img width="460" height="300" src="https://files.catbox.moe/c7rwll.jpg">
 </p>
+
+
 
 
 
