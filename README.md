@@ -3,6 +3,8 @@
  
  *"Blessed Are Those Who Mourn For They Will Be Comforted".*
 
+![](https://komarev.com/ghpvc/?username=cheesewezz&color=orange)
+
 
 <p align="center">
   <img width="450" height="450" src="https://files.catbox.moe/0hvgdc.png">
@@ -13,12 +15,6 @@
 <p align="center">
   <img width="100" height="80" src="https://files.catbox.moe/l6ynfl.png">
 </p>
-
-
-![](https://komarev.com/ghpvc/?username=cheesewezz&color=orange)
-
-🍂
-
 
 [patreon](patreon.com/user?u=85089921) . [ata.book](https://zxioide.atabook.org/) . [strawpage](https://chezzits.straw.page/) . [bluesky](https://bsky.app/profile/cheesewezz.bsky.social)
 
