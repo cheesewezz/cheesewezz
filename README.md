@@ -1,93 +1,100 @@
-<h5 align="center">
+<p align="center">
+  <img width="100" height="80" src="https://files.catbox.moe/l6ynfl.png">
+</p>
+
+<h6 align="center"> 
  
- [@DutchCannibalLinde](https://github.com/DutchCannibalLinde) . [@Welcome2Paradise](https://github.com/Welcome2Paradise)
+ *"Blessed Are Those Who Mourn For They Will Be Comforted".*
 
- <h6 align="center"> "Blessed are those who value friendship, divining loyalty, and unfaltering affection"
-
-
- <p align="center">
-  <img width="590" height="400" src="https://media.discordapp.net/attachments/1116747850282451045/1352240041111457843/ef3274b54b15e32b1d75e524dcea707d-removebg-preview.png?ex=67dd4b2d&is=67dbf9ad&hm=392cae6489567c78475b11059ccedf036be332d6974ffb369ad52f7e5503a6ff&=&format=webp&quality=lossless">
-</p>
-
-
-<h6 align="center">
-  
-  "*Some men are born rich enough and dumb enough to enjoy their lives. Ain't nothing fair. You know that*"
-
-
-
-![profileviews](https://komarev.com/ghpvc/?username=cheesewezz&color=green)
-
-
-<h3 align="center">🌿</h3>
-
-<h6 align="center">
-
-[patreon](https://www.patreon.com/c/user/posts?u=85089921) . [strawpage](https://chezzits.straw.page/) . [ata.book](https://zxioide.atabook.org/) . [bluesky](https://bsky.app/profile/cheesewezz.bsky.social)
-
-more links are under my profile. 
-
-c+h is welcomed regardless, don't be afraid to come sit down
-
-<h6 align="center">
-  
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&redirect=true) 🎧
-
-I ABSOLUTELY LOVE MUSIC. I love rock music all the way down to some nostaliga. I am almost all the time listening to rock music (that sometimes corresponds to my ponies in Pony Town) I like every type of music, except I strongly don't like Taylor Swift, and I don't like modern Country, I like the old crap
-
-If you'd like to recommend me some music I'd love to hear them! 
-
-<h3 align="center">About</h3>
-
------
-
-<img align="right" width="400" height="350" src="https://media.discordapp.net/attachments/1116747850282451045/1352372924916568124/6204200d6102e9ee2c93bc51a3e97b83-removebg-preview.png?ex=67ddc6ef&is=67dc756f&hm=50613c6fcca8b5f23a3eea116d3964f5d7e6810a8ee05af1eaf42cfb9a340fcb&=&format=webp&quality=lossless">
-
-I have a lot of nicknames, but I usually go by John, zxioide, cheese, or bhs (black hole sun) around. I mostly go by John, so choosing a nickname for me wouldn't be quite difficult 
-(unless you're my *very* close friends, you can call me whatever you want *just run it by me first*)
-
-I am a male individual, I go by the standard he/him pronouns. I don't care if you mistaken me, since (if this is the first time) you don't really know me well, but I'll playfully act offended if you do. No offense of course.
-
-I am an ameteur artist, I do both traditional art and digital. I'm trying to master digital more, but it's a work in progress.
-
-I am a RED DEAD geek, if I see you in any red dead character/oc ponies inspired from the game I will go crazy and chase you. I greatly indulge in red dead and may talk about it a LOT. so be aware.
-
-I am a bit mentally unstable. I may act very irritated, aggressive, or going silent. I promise I'm fine, and nothing provoked it (I hope), normally I bounce right back but sometimes I may not. 
-
-> sometimes I may act like a flirt, or a big tease. I mean this in the most possible joking manner. I don't mean this intentionally, and if you'd like me to stop I'd gladly abide.
-
-I am normally online around 10AM/12AM to midnight. If I am up any later than 12AM its because im disregarding the negativity to blue light, or im speaking with my friends. Normally I'm not always on tab, and could be either away from home or sleeping. If you need to reach me don't be afraid to whisper me (if available)
-
-<h3 align="center">Below</h3>
-
---------
-
-<img align="left" width="300" height="300" src="https://media.discordapp.net/attachments/1116747850282451045/1352378950885572708/7468b2c94376f3b382ea940580c5431e-removebg-preview.png?ex=67ddcc8b&is=67dc7b0b&hm=3f9d86a3b4f251419b84027432d6544277c2cb1b80713984c0397a4827c5ffc4&=&format=webp&quality=lossless">
-
-<h6 align="center">just would like to clarify that old friends of mine i've made clear I didn't want in my life NEED to stay out of it. That goes out strongly.</h6>
-
-my dni's have standards, I suggest you check out my [patreon](https://www.patreon.com/c/user/posts?u=85089921) and scroll down until you see them. Though I may have standards, I block freely, don't take it for granted.
-
-this will be the remaining text since I know some people don't want to know my lifestory.
-
-1. If there are any personal issues that need to be reached to me privately please reach out and whisper me before so, I will only then give you my discord so we can take the issue off pony town since its so largely problematic.
-
-2. I'd prefer if you'd whisper me when crowning me since I'm always offtab, or not home, OR sleeping. Though, due to countless supporter whispers I had to turn it off. So if you can you can whisper me when they are open or come up to me and go crazy.
-
-3. I do not tolerate inappropriate behavior, or harassment on any of my media's. If you have a problem with me please take your sorry ass somewhere else.
-
-4. I DO NOT LEND OUT MY SUPPORTER.
-
-<h3 align="center">"Our time has passed, john"</h3>
-  
-------------
-
-<h6 align="center">don't be afraid to come speak with me, I don't bite a lot</h6>
-
-  <p align="center">
-  <img width="590" height="400" src="https://i.pinimg.com/736x/f9/5c/c4/f95cc4a54cce939be0e732c64088b2ea.jpg">
-</p>
 
 <p align="center">
-<img width="100" height="100" src="https://media.discordapp.net/attachments/1116747850282451045/1352384735493488651/0ae0cd06eea272c5399fd10c716d5714-removebg-preview.png?ex=67ddd1ef&is=67dc806f&hm=2b8f7692c9034add9874781b1eb6682f3578ef37cda4b2d4250f10733d5b9fde&=&format=webp&quality=lossless">
+  <img width="450" height="450" src="https://files.catbox.moe/0hvgdc.png">
 </p>
+
+<h6 align="center">
+
+🍂
+
+
+
+![](https://komarev.com/ghpvc/?username=cheesewezz&color=orange)
+
+__
+
+[patreon](patreon.com/user?u=85089921) . [ata.book](https://zxioide.atabook.org/) . [strawpage](https://chezzits.straw.page/) . [bluesky](https://bsky.app/profile/cheesewezz.bsky.social)
+
+
+c+h is welcomed regardless. no need to ask, just come on over.
+
+🎧
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&cover_image=true&theme=novatorem&show_offline=true&background_color=805252&interchange=true&bar_color=d33703&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&redirect=true) 🎧
+
+<h6 align="center">
+
+you can see what I'm listening to! I mostly like rock music (divorced dad rock mostly) but I also like exploring genres like jeff buckley, The Smiths, and Pecos Hank. Of course there are more bands I really love, but fitting them into this box may take several hours. 
+
+<img align="right" width="220" height="250" src="https://files.catbox.moe/ebtbpv.png">
+ 
+ If you'd like to recommend me music please do! music is my love language!
+
+ <h3 align="center"> about me</h3>
+
+<h6 align="center">
+
+ __
+
+ <h6 align="center"></h6>
+
+<img align="left" width="200" height="250" src="https://files.catbox.moe/v367ms.png">
+
+You can call me john marston, cheesewezz, or zxioide. I'm also known as black hole sun, but that name hasn't been spoken in a few days. Friends that are considered VERY close may call me whatever they want, seriously, just run it by me first before you call me something offensive/j
+
+I am of male origin, I go by he/him pretty much. I don't mind if you don't know who I am right away, I just will act JOKINGLY offended, I swear I don't mean any ill will.
+
+I am mentally unwell, I may act very down, angry, or quiet certain times. I promise I'm fine, I usually bounce back after taking a break, but normally I may not just so you may be aware. I have depression and a wacky insomnia demon
+
+ *I am also extremely flirty as a tease, or in a joking manner. I promise I don't mean it seriously and if you aren't comfortable with me joking like that I won't do it. You have my word.*
+
+ I am a HUGE red dead fan (can you tell?) I enjoy talking about red dead and making stupid references from the game or videos. If I see you running around with a red dead character/oc im going to jump you and strangle you with every fiber of my body /pos
+
+<img align="right" width="200" height="250" src="https://files.catbox.moe/jo5dti.png">
+
+I am a ameteur artist. I go both ways, digitally and traditionally. I prefer traditionally more since I suck at digital 
+
+<h3 align="center"> lastly</h3>
+
+<h6 align="center">
+
+ __
+
+<h6 align="center"></h6>
+
+
+lastly I do have *do not interact standards*, but I block freely. Don't take it for granted. Check out my [patreon](patreon.com/user?u=85089921) and check out my dni's
+
+1. if you have any personal issues that need to be brought to my attention please reach out to me in whispers. I will then give you my discord so we can talk privately because I prefer not making pony town more problematic as it already is. If my whispers are not available you can leave me a message in either my [ata.book] or [strawpage] if you need to talk.
+
+2. I do not tolerate inappropriate behavior, or harassment on any of my media's. If you have a problem with me please take your sorry ass somewhere else.
+
+3. If you want to crown me or compliment my ponies I prefer if you whisper me since I'm always not on tab or afk. IF THEY ARE STILL DISABLED JUST GO CRAZY IN PUBLIC. I might see it if I'm looking at the right time.
+
+4. I am active around __10AM to 12AM__ at midnight. I am up far later, later than you might think. If I'm not online I promise I'm active somewhere else. On weekdays I may not be available at all depending on the day
+
+5. No I dont lend out my supporter. Thats why I have my whispers disabled.
+
+<h3 align="center">John made it. He's the only one...</h2>
+
+<h6 align="center">
+ 
+__
+
+<h6 align="center"> don't be afraid to come talk with me. I'm a chatterbox but a bit shy. I promise I don't bite.</h6>
+
+<p align="center">
+  <img width="460" height="300" src="https://files.catbox.moe/c7rwll.jpg">
+</p>
+
+
+
+
+
