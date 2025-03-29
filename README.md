@@ -7,7 +7,7 @@
 
 
 <p align="center">
-  <img width="350" height="350" src="https://files.catbox.moe/0hvgdc.png">
+  <img width="450" height="450" src="https://files.catbox.moe/0hvgdc.png">
 </p>
 
 <h6 align="center">
@@ -16,7 +16,7 @@
   <img width="100" height="80" src="https://files.catbox.moe/l6ynfl.png">
 </p>
 
-[patreon](patreon.com/user?u=85089921) . [ata.book](https://zxioide.atabook.org/) . [strawpage](https://chezzits.straw.page/) . [bluesky](https://bsky.app/profile/cheesewezz.bsky.social)
+[patreon](patreon.com/user?u=85089921) . [ata.book](https://zxioide.atabook.org/) . [strawpage](https://chezzits.straw.page/) . [bluesky](https://bsky.app/profile/cheesewezz.bsky.social) [carrd](https://cheesewezz.carrd.co/)
 
 
 c+h is welcomed regardless. no need to ask, just come on over.
