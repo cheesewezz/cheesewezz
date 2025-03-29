@@ -1,6 +1,3 @@
-<p align="center">
-  <img width="100" height="80" src="https://files.catbox.moe/l6ynfl.png">
-</p>
 
 <h6 align="center"> 
  
@@ -13,13 +10,15 @@
 
 <h6 align="center">
 
-🍂
-
+<p align="center">
+  <img width="100" height="80" src="https://files.catbox.moe/l6ynfl.png">
+</p>
 
 
 ![](https://komarev.com/ghpvc/?username=cheesewezz&color=orange)
 
-__
+🍂
+
 
 [patreon](patreon.com/user?u=85089921) . [ata.book](https://zxioide.atabook.org/) . [strawpage](https://chezzits.straw.page/) . [bluesky](https://bsky.app/profile/cheesewezz.bsky.social)
 
@@ -41,7 +40,7 @@ you can see what I'm listening to! I mostly like rock music (divorced dad rock m
 
 <h6 align="center">
 
- __
+ ___
 
  <h6 align="center"></h6>
 
@@ -65,7 +64,7 @@ I am a ameteur artist. I go both ways, digitally and traditionally. I prefer tra
 
 <h6 align="center">
 
- __
+ ___
 
 <h6 align="center"></h6>
 
@@ -86,7 +85,7 @@ lastly I do have *do not interact standards*, but I block freely. Don't take it 
 
 <h6 align="center">
  
-__
+___
 
 <h6 align="center"> don't be afraid to come talk with me. I'm a chatterbox but a bit shy. I promise I don't bite.</h6>
 
