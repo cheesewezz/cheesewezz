@@ -1,7 +1,7 @@
 
 <h6 align="center"> 
 
-[@Welcome2Paradise](https://github.com/Welcome2Paradise) . [@DutchCannibalLinde](https://github.com/DutchCannibalLinde) . [@crossington](https://github.com/crossinton) . [@SP3XX](https://github.com/SP3XX)
+[@Welcome2Paradise](https://github.com/Welcome2Paradise) . [@6InchesIn](https://github.com/DutchCannibalLinde) . [@crossington](https://github.com/crossinton) . [@SP3XX](https://github.com/SP3XX)
  
  *"Blessed Are Those Who Mourn For They Will Be Comforted".*
 
