@@ -43,7 +43,7 @@ you can see what I'm listening to! I mostly like rock music (divorced dad rock m
 
 <img align="left" width="200" height="250" src="https://files.catbox.moe/v367ms.png">
 
-You can call me john marston, cheesewezz, or zxioide. I'm also known as black hole sun, but that name hasn't been spoken in a few days. Friends that are considered VERY close may call me whatever they want, seriously, just run it by me first before you call me something offensive/j
+You can call me john marston, arthur morgan, cheesewezz, or zxioide. I'm also known as black hole sun, but that name hasn't been spoken in a few days. Friends that are considered VERY close may call me whatever they want, seriously, just run it by me first before you call me something offensive/j
 
 I am of male origin, I go by he/him pretty much. I don't mind if you don't know who I am right away, I just will act JOKINGLY offended, I swear I don't mean any ill will.
 
