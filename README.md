@@ -1,3 +1,9 @@
+<h6 align="center"> 
+  
+  [@Welcome2Paradise](https://github.com/Welcome2Paradise) . [6inchesin](https://github.com/6InchesIn) . [capxcrimine](https://github.com/capxcrimine) . [crossington](https://github.com/crossinton)
+
+ᴵ'ᵛᵉ ᵍᵒᵗ ᵃ ˢᵖᵉᶜⁱᵃˡ ᵖˡᵃᶜᵉ ⁱⁿ ᵐʸ ʰᵉᵃʳᵗ ᶠᵒʳ ᵉᵛᵉʳʸ ˢⁱⁿᵍˡᵉ ᵒⁿᵉ ᵒᶠ ʸᵒᵘ
+
 
 <p align="center">
   <img width="1000" height="50" src="https://files.catbox.moe/qxgoso.webp">
@@ -7,13 +13,7 @@
  <img width="100" height="100" src="https://files.catbox.moe/v1sqf4.png">
 </p>
 
-<h6 align="center">
-
-[@Welcome2Paradise](https://github.com/Welcome2Paradise) . [6inchesin](https://github.com/6InchesIn) . [capxcrimine](https://github.com/capxcrimine) . [crossington](https://github.com/crossinton)
-
-ᴵ'ᵛᵉ ᵍᵒᵗ ᵃ ˢᵖᵉᶜⁱᵃˡ ᵖˡᵃᶜᵉ ⁱⁿ ᵐʸ ʰᵉᵃʳᵗ ᶠᵒʳ ᵉᵛᵉʳʸ ˢⁱⁿᵍˡᵉ ᵒⁿᵉ ᵒᶠ ʸᵒᵘ
-
-<3
+<h6 align="center"> 
 
 <p align="center">
   <img width="500" height="450" src="https://files.catbox.moe/8vsqew.png">
