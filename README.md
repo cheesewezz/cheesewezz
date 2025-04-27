@@ -18,7 +18,7 @@
 <h6 align="center"> 
 
 <p align="center">
-  <img width="510" height="450" src="https://files.catbox.moe/8vsqew.png">
+  <img width="510" height="450" src="https://files.catbox.moe/yxvmo4.png">
 </p>
 
 ![](https://komarev.com/ghpvc/?username=cheesewezz&color=lightgray)
