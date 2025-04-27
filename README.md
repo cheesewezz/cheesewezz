@@ -1,7 +1,7 @@
 <h6 align="center"> 
 
 <p align="center">
-  <img width="900" height="30" src="https://files.catbox.moe/qxgoso.webp">
+  <img width="900" height="30" src="https://files.catbox.moe/hb3bkp.webp">
 </p>
 
 <p align="center">
