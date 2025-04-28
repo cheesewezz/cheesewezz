@@ -1,7 +1,7 @@
 <h6 align="center"> 
 
 <p align="center">
-  <img width="900" height="30" src="https://files.catbox.moe/hb3bkp.webp">
+  <img width="900" height="30" src="https://files.catbox.moe/v3spet.webp">
 </p>
 
 <p align="center">
@@ -53,7 +53,7 @@
 _______
 
 <p align="center">
- <img width="300" height="60" src="https://files.catbox.moe/7sdgn6.webp">
+ <img width="300" height="60" src="https://files.catbox.moe/ih4hoa.webp">
 </p>
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
@@ -67,10 +67,18 @@ I go by many names such as **john (marston), scarface, cheesewezz, or black hole
 I block people freely despite having a bit of standards. As long as you're chill and don't indulge in problematic things (involving minors) otherwise **im sending you straight to hell**
 > you want to know about my standards? check my patreon and scroll down to "STANDARDS"
 
-I am mentally unstable, I tend to ignore people, go silent, or avoid others with all of the above. I normally jump back into reality after a while, but if I am hadn't it's best to interact with caution. I have insomnia, and a reeking depression 
+I am mentally unstable, I tend to ignore people, go silent, or avoid others with all of the above. I normally jump back into reality after a while, but if I hadn't it's best to interact with caution. I have insomnia, and a reeking depression 
 
 > I also tend to flirt with people unconciously *NOT FOR THE PURPOSE OF A ROMANTIC ATTRACTION* (unless stated otherwise), only for the purpose of teasing or making fun of in a light hearted way. I flirt with friends only and if you're not comfortable with me doing so I will abide and not continue.
 
+____
 
+<h6 align="center">
 
+<p align="center">
+ <img width="200" height="40" src="https://files.catbox.moe/5e3lac.webp">
+</p>
+
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+</h6>
 
