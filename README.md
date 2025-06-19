@@ -30,7 +30,7 @@
         <img src="https://files.catbox.moe/6hghz0.png" width="50" height="50" alt="Link Image">
  </a> 
 
-<a href="https://chezzits.straw.page/">
+<a href="https://cheesewezz.straw.page/">
     <img src="https://files.catbox.moe/usfjnf.png" width="50" height="50" alt="Link image">
     </a> 
 
