@@ -23,7 +23,7 @@
 <h6 align="center"> 
 
 <p align="center">
-  <img width="310" height="250" src="https://files.catbox.moe/yxvmo4.png">
+  <img width="310" height="250" src="https://i.pinimg.com/736x/42/42/6d/42426d1453ba94253a7259c0c5788ca8.jpg">
 </p>
 
 ![](https://komarev.com/ghpvc/?username=cheesewezz&color=lightgray)
@@ -78,3 +78,4 @@ I am mentally unstable, I tend to ignore people, go silent, or avoid others with
 
 I'm mostly online around **10AM/2AM** to midnight, I deeply disregard the negativity of screentime and I procrastinate a *LOT* though, you can catch me around docks, or in the cod area normally roaming around
 > I also am most often offtab or asleep. if you need to reach out to me don't be afraid to whisper me immedately, and i'll get back to you if you're still around
+_______
