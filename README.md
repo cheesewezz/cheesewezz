@@ -59,7 +59,7 @@ _______
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 </h6>
 
-<img align="right" width="200" length="300" src="https://files.catbox.moe/6w7nv8.png">
+<img align="right" width="200" length="300" src="https://files.catbox.moe/fu6qf5.png">
 
 I go by many names such as **john (marston), scarface, cheesewezz, or black hole sun** (which is an old name I went by but usually don't anymore) however, if you're a stranger and don't know which name to chose from just call me **john** for short. If you're a *close friend* you can call me whatever you please. Run it by me first before calling me anything offensive though. 
 > I am a **male individual**, I go by the standard **he/him** and thats it really. Of course I won't be offended if you assume something else, only jokingly will I yell at you about it. I mean no ill will
