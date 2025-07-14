@@ -13,7 +13,7 @@
 🐟
 
 
- [@Welcome2Paradise](https://github.com/Welcome2Paradise) . [@johnmarstoned](https://github.com/johnmarstoned) . [@6inchesin](https://github.com/6InchesIn) . [@capxcrimine](https://github.com/capxcrimine) . [@crossington](https://github.com/crossinton)
+ [@Welcome2Paradise](https://github.com/Welcome2Paradise) . [@johnmarstoned](https://github.com/johnmarstoned) . [@6inchesin](https://github.com/6InchesIn) .  [@crossington](https://github.com/crossinton)
 
 
 ᴵ'ᵛᵉ ᵍᵒᵗ ᵃ ˢᵖᵉᶜⁱᵃˡ ᵖˡᵃᶜᵉ ⁱⁿ ᵐʸ ʰᵉᵃʳᵗ ᶠᵒʳ ᵉᵛᵉʳʸ ˢⁱⁿᵍˡᵉ ᵒⁿᵉ ᵒᶠ ʸᵒᵘ 
