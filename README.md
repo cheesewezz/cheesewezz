@@ -8,7 +8,7 @@
  <img width="100" height="100" src="https://files.catbox.moe/v1sqf4.png">
 </p>
 
-[RIP VAN WINKLE.](https://github.com/cruelseabass)
+[<ins> RIP VAN WINKLE.</ins>](https://github.com/cruelseabass)
 
 🐟
 
