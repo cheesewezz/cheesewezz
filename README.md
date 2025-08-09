@@ -13,7 +13,7 @@
 🐟
 
 
- [@Welcome2Paradise](https://github.com/Welcome2Paradise) . [@johnmarstoned](https://github.com/johnmarstoned) . [@crossinton](https://github.com/crossinton)
+ [@Welcome2Paradise](https://github.com/Welcome2Paradise) . [@ripvanwinkles](https://github.com/ripvanwinkles) . [@crossinton](https://github.com/crossinton)
 
 
 ᴵ'ᵛᵉ ᵍᵒᵗ ᵃ ˢᵖᵉᶜⁱᵃˡ ᵖˡᵃᶜᵉ ⁱⁿ ᵐʸ ʰᵉᵃʳᵗ ᶠᵒʳ ᵉᵛᵉʳʸ ˢⁱⁿᵍˡᵉ ᵒⁿᵉ ᵒᶠ ʸᵒᵘ 
