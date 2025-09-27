@@ -10,7 +10,7 @@
 
 Quite the lovely people.
 
-[@Welcome2Paradise]() , [@thecowpoke](https://github.com/thecowpoke) / [@crossinton](https://github.com/crossinton)
+[@Welcome2Paradise](https://github.com/Welcome2Paradise) , [@thecowpoke](https://github.com/thecowpoke) / [@crossinton](https://github.com/crossinton)
 
 🐺
 
