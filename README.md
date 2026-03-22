@@ -2,11 +2,11 @@
   
 ![🐺](https://komarev.com/ghpvc/?username=cheesewezz&color=red)
 
-<a href="https://cheesewezz.carrd.co/">
+<a href="">
         <img src="https://files.catbox.moe/6hghz0.png" width="60" height="50" alt="Link Image">
 </a>
 
-<a href="https://scarfaces.straw.page/">
+<a href="">
     <img src="https://files.catbox.moe/usfjnf.png" width="60" height="50" alt="Link image">
 </a>
 
