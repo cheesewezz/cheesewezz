@@ -5,7 +5,7 @@
 </p>
 
 <p align="center">
-  <img width="100" height="200" src="https://txt.1001fonts.net/img/txt/dHRmLjk2LmZjZjJkZi5abTl5SUhSb1pYa2dkMmxzYkNCaVpTQm1hV3hzWldRLjA/boundless-wing-free.regular.webp">
+  <img width="200" height="200" src="https://txt.1001fonts.net/img/txt/dHRmLjk2LmZjZjJkZi5abTl5SUhSb1pYa2dkMmxzYkNCaVpTQm1hV3hzWldRLjA/boundless-wing-free.regular.webp">
 </p>
 
 <p align="center">
