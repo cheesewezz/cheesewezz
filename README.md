@@ -1,6 +1,6 @@
 <h6 align="center">
   
-![🐺](https://komarev.com/ghpvc/?username=cheesewezz&color=red)
+𓃦  ![🐺](https://komarev.com/ghpvc/?username=cheesewezz&color=red)  𓃖
   
 
 <p align="center">
