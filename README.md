@@ -2,28 +2,6 @@
   
 ![🐺](https://komarev.com/ghpvc/?username=cheesewezz&color=red)
 
-<p align="center">
-  <img width="1800" height="200" src="https://txt.1001fonts.net/img/txt/dHRmLjk2LmZmZjdlMi5RbXhsYzNObFpDQmhjbVVnZEdodmMyVWdkMmh2SUhSb2FYSnpkQ0JoYm1RZ2FIVnVaMlZ5SUdadmNpQnlhV2RvZEdWdmRYTnVaWE56LjA,/better-sunday-demo.regular.webp">
-</p>
-
-<p align="center">
-  <img width="200" height="200" src="https://txt.1001fonts.net/img/txt/b3RmLjk2LmVmZGFjOS5SbTl5SUhSb1pYa2dkMmxzYkNCaVpTQm1hV3hzWldRLC4w/managiri.personal-use.webp">
-</p>
-
-<p align="center">
-  <img width="100" height="100" src="https://pub-1407f82391df4ab1951418d04be76914.r2.dev/uploads/b0cb48b9-346e-44ef-b169-a265ded6db0e.png">
-</p>
-
-
-════════════════════════════
-
-<p align="center">
-  <img width="700" height="200" src="https://i.pinimg.com/1200x/cd/b5/ef/cdb5ef9cc9eaf049f64285aad63b69ab.jpg">
-</p>
-
-════════════════════════════════════════════════════════
-
-
 <a href="https://cheesewezz.carrd.co/">
         <img src="https://files.catbox.moe/6hghz0.png" width="60" height="50" alt="Link Image">
 </a>
@@ -39,6 +17,26 @@
   <a href="https://zxioide.atabook.org/">
         <img src="https://files.catbox.moe/dnbe98.png" width="60" height="50" alt="Link Image">
   </a>
+  
+
+<p align="center">
+  <img width="1800" height="200" src="https://txt.1001fonts.net/img/txt/dHRmLjk2LmZmZjdlMi5RbXhsYzNObFpDQmhjbVVnZEdodmMyVWdkMmh2SUhSb2FYSnpkQ0JoYm1RZ2FIVnVaMlZ5SUdadmNpQnlhV2RvZEdWdmRYTnVaWE56LjA,/better-sunday-demo.regular.webp">
+</p>
+
+<p align="center">
+  <img width="200" height="200" src="https://txt.1001fonts.net/img/txt/b3RmLjk2LmVmZGFjOS5SbTl5SUhSb1pYa2dkMmxzYkNCaVpTQm1hV3hzWldRLC4w/managiri.personal-use.webp">
+</p>
+
+<p align="center">
+  <img width="100" height="100" src="https://pub-1407f82391df4ab1951418d04be76914.r2.dev/uploads/b0cb48b9-346e-44ef-b169-a265ded6db0e.png">
+</p>
+
+<p align="center">
+  <img width="700" height="200" src="https://i.pinimg.com/1200x/cd/b5/ef/cdb5ef9cc9eaf049f64285aad63b69ab.jpg">
+</p>
+
+
+════════════════════════════
 
 some socials will either be reworked, remade, tampered with, or completely removed. all of which are not final and are all in room for improvement.
 
