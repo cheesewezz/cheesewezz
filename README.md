@@ -1,6 +1,7 @@
 <h6 align="center">
-  
-𓃦  ![🐺](https://komarev.com/ghpvc/?username=cheesewezz&color=red)  𓃖
+
+
+꧁ᬊᬁ![🐺](https://komarev.com/ghpvc/?username=cheesewezz&color=red)ᬊ᭄꧂
   
 
 <p align="center">
@@ -18,6 +19,8 @@
 <p align="center">
   <img width="600" height="200" src="https://i.pinimg.com/1200x/cd/b5/ef/cdb5ef9cc9eaf049f64285aad63b69ab.jpg">
 </p>
+
+𓆝 𓆟 𓆞 𓆝 𓆟
 
 ════════════════════════════
 
