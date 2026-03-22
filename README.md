@@ -16,7 +16,7 @@
 </p>
 
 <p align="center">
-  <img width="700" height="200" src="https://i.pinimg.com/1200x/cd/b5/ef/cdb5ef9cc9eaf049f64285aad63b69ab.jpg">
+  <img width="600" height="200" src="https://i.pinimg.com/1200x/cd/b5/ef/cdb5ef9cc9eaf049f64285aad63b69ab.jpg">
 </p>
 
 ════════════════════════════
@@ -40,3 +40,9 @@
 some socials will either be reworked, remade, tampered with, or completely removed. all of which are not final and are all in room for improvement.
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&redirect=true)
+ 
+ </h6>
+ 
+
+
+                
