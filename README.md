@@ -1,7 +1,7 @@
 <h6 align="center">
 
 <p align="center">
-  <img width="1800" height="200" src="https://txt.1001fonts.net/img/txt/dHRmLjk2LmZjZjZlOC5RbXhsYzNObFpDQmhjbVVnZEdodmMyVWdkMmh2SUdoMWJtZGxjaUJoYm1RZ2RHaHBjbk4wSUdadmNpQnlhV2RvZEdWdmRYTnVaWE56LjA/bongstand.regular.webp">
+  <img width="1800" height="200" src="https://txt.1001fonts.net/img/txt/dHRmLjk2LmZmZjdlMi5RbXhsYzNObFpDQmhjbVVnZEdodmMyVWdkMmh2SUhSb2FYSnpkQ0JoYm1RZ2FIVnVaMlZ5SUdadmNpQnlhV2RvZEdWdmRYTnVaWE56LjA,/better-sunday-demo.regular.webp">
 </p>
 
 <p align="center">
