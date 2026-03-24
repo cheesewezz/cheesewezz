@@ -1,7 +1,7 @@
 <h6 align="center">
 
 
-꧁ᬊᬁ![🐺](https://komarev.com/ghpvc/?username=cheesewezz&color=red)ᬊ᭄꧂
+![](https://komarev.com/ghpvc/?username=cheesewezz&color=orange&style=plastic&label=🐺++)
   
 
 <p align="center">
@@ -9,18 +9,18 @@
 </p>
 
 <p align="center">
-  <img width="200" height="200" src="https://txt.1001fonts.net/img/txt/b3RmLjk2LmVmZGFjOS5SbTl5SUhSb1pYa2dkMmxzYkNCaVpTQm1hV3hzWldRLC4w/managiri.personal-use.webp">
+  <img width="200" height="300" src="https://txt.1001fonts.net/img/txt/b3RmLjk2LmVmZGFjOS5SbTl5SUhSb1pYa2dkMmxzYkNCaVpTQm1hV3hzWldRLC4w/managiri.personal-use.webp">
 </p>
+
+𓆝 𓆟 𓆞 𓆝 𓆟
 
 <p align="center">
   <img width="100" height="100" src="https://pub-1407f82391df4ab1951418d04be76914.r2.dev/uploads/b0cb48b9-346e-44ef-b169-a265ded6db0e.png">
 </p>
 
 <p align="center">
-  <img width="600" height="200" src="https://i.pinimg.com/1200x/cd/b5/ef/cdb5ef9cc9eaf049f64285aad63b69ab.jpg">
+  <img width="700" height="200" src="https://img.sanishtech.com/u/eeef21e78272a9fe774deee861125ce4.png">
 </p>
-
-𓆝 𓆟 𓆞 𓆝 𓆟
 
 ════════════════════════════
 
@@ -44,8 +44,3 @@ some socials will either be reworked, remade, tampered with, or completely remov
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&redirect=true)
  
- </h6>
- 
-
-
-                
