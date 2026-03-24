@@ -15,7 +15,7 @@
 𓆝 𓆟 𓆞 𓆝 𓆟
 
 <p align="center">
-  <img width="100" height="100" src="https://pub-1407f82391df4ab1951418d04be76914.r2.dev/uploads/b0cb48b9-346e-44ef-b169-a265ded6db0e.png">
+  <img width="100" height="100" src="https://img.sanishtech.com/u/c81dafaaf74b4b62449a9485f49895a2.png">
 </p>
 
 <p align="center">
