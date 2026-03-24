@@ -5,11 +5,11 @@
   
 
 <p align="center">
-  <img width="1500" height="200" src="https://txt.1001fonts.net/img/txt/dHRmLjk2LmZmZjdlMi5RbXhsYzNObFpDQmhjbVVnZEdodmMyVWdkMmh2SUhSb2FYSnpkQ0JoYm1RZ2FIVnVaMlZ5SUdadmNpQnlhV2RvZEdWdmRYTnVaWE56LjA,/better-sunday-demo.regular.webp">
+  <img width="1300" height="200" src="https://txt.1001fonts.net/img/txt/dHRmLjk2LmZmZjdlMi5RbXhsYzNObFpDQmhjbVVnZEdodmMyVWdkMmh2SUhSb2FYSnpkQ0JoYm1RZ2FIVnVaMlZ5SUdadmNpQnlhV2RvZEdWdmRYTnVaWE56LjA,/better-sunday-demo.regular.webp">
 </p>
 
 <p align="center">
-  <img width="200" height="300" src="https://txt.1001fonts.net/img/txt/b3RmLjk2LmVmZGFjOS5SbTl5SUhSb1pYa2dkMmxzYkNCaVpTQm1hV3hzWldRLC4w/managiri.personal-use.webp">
+  <img width="200" height="200" src="https://txt.1001fonts.net/img/txt/b3RmLjk2LmVmZGFjOS5SbTl5SUhSb1pYa2dkMmxzYkNCaVpTQm1hV3hzWldRLC4w/managiri.personal-use.webp">
 </p>
 
 𓆝 𓆟 𓆞 𓆝 𓆟
@@ -19,7 +19,7 @@
 </p>
 
 <p align="center">
-  <img width="700" height="200" src="https://img.sanishtech.com/u/eeef21e78272a9fe774deee861125ce4.png">
+  <img width="700" height="280" src="https://img.sanishtech.com/u/eeef21e78272a9fe774deee861125ce4.png">
 </p>
 
 ════════════════════════════
