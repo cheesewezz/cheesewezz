@@ -15,11 +15,11 @@
 𓆝 𓆟 𓆞 𓆝 𓆟
 
 <p align="center">
-  <img width="100" height="100" src="https://img.sanishtech.com/u/c81dafaaf74b4b62449a9485f49895a2.png">
+  <img width="100" height="110" src="https://files.catbox.moe/sw8d80.png">
 </p>
 
 <p align="center">
-  <img width="700" height="280" src="https://img.sanishtech.com/u/eeef21e78272a9fe774deee861125ce4.png">
+  <img width="700" height="280" src="https://files.catbox.moe/up25mj.png">
 </p>
 
 ════════════════════════════
