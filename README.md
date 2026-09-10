@@ -6,12 +6,7 @@
 
 *I was told to not look back, but I couldn't stand leaving you stand alone in the cold.*
 
-<p align="center">
-  <img width="110" height="150" src="https://files.catbox.moe/pz22ik.png">
-</p>
-
-<h6 align="center">
-
+[strawpage](https://cheesewezzc.straw.page) , [art comms (COMING SOON)]() , [carrd (COMING SOON)]() , [artspace](https://www.artstation.com/cheesewezz) , [atabook](https://cheesewezz.atabook.org)
 
 ![🐺](https://komarev.com/ghpvc/?username=cheesewezz&color=orange)
 
