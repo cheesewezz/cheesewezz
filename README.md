@@ -6,7 +6,12 @@
 
 *I was told to not look back, but I couldn't stand leaving you stand alone in the cold.*
 
-currently being made in progress and under construction 
+<p align="center">
+  <img width="110" height="150" src="https://files.catbox.moe/pz22ik.png">
+</p>
+
+<h6 align="center">
+
 
 ![🐺](https://komarev.com/ghpvc/?username=cheesewezz&color=orange)
 
