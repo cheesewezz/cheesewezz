@@ -24,8 +24,6 @@
         <img src="https://files.catbox.moe/dnbe98.png" width="60" height="55" alt="Link Image">
   </a>
 
-  some of the links may be undergoing work in progresses. If there is a bug please let me know :)
-
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&cover_image=true&theme=novatorem&show_offline=true&background_color=a68a77&interchange=true&profanity=false&hide_remaster=false&bar_color=b68949&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&redirect=true)
 
 <p align="center">
