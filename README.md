@@ -30,6 +30,7 @@
   <img width="200" height="200" src="https://files.catbox.moe/54n28x.jpg">
 </p>
 
-![profileviews](https://komarev.com/ghpvc/?username=cheesewezz&label=Strangers&color=A25B00) 
+
+
 
 
