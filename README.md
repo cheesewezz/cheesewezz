@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="1000" height="100" src="https://files.catbox.moe/6rdkpc.jpg">
+  <img width="1000" height="150" src="https://i.pinimg.com/1200x/41/db/7a/41db7a9344bf657591eeb3214b7ed505.jpg">
 </p>
 
 <h6 align="center">
@@ -27,7 +27,7 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&cover_image=true&theme=novatorem&show_offline=true&background_color=a68a77&interchange=true&profanity=false&hide_remaster=false&bar_color=b68949&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&redirect=true)
 
 <p align="center">
-  <img width="200" height="200" src="https://files.catbox.moe/54n28x.jpg">
+  <img width="200" height="200" src="https://i.pinimg.com/736x/22/05/75/220575714659179c7a7f14ec080fba5c.jpg">
 </p>
 
 
