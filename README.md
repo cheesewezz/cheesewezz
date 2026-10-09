@@ -20,7 +20,7 @@
      <img src="https://files.catbox.moe/fg4q4h.png" width="60" height="55" alt="Link Image">
  </a> 
 
-  <a href="https://cheesewezz.carrd.co">
+  <a href="https://www.artstation.com/cheesewezz">
         <img src="https://files.catbox.moe/dnbe98.png" width="60" height="55" alt="Link Image">
   </a>
 
