@@ -4,9 +4,9 @@
 
 <h6 align="center">
 
-*I was told to not look back, but I couldn't stand leaving you stand alone in the cold.*
+*Yargh! I came for ye booty!*
 
-*so I looked back...*
+*that... be treasure, yknow...*
 
 <a href="https://cheesewezzc.straw.page">
         <img src="https://files.catbox.moe/6hghz0.png" width="60" height="55" alt="Link Image">
@@ -29,6 +29,8 @@
 <p align="center">
   <img width="200" height="200" src="https://i.pinimg.com/1200x/6e/5c/8a/6e5c8a9b4b7d8fe25976f5b04fa2ddf4.jpg">
 </p>
+
+[ temporary for halloween, happy halloween everyone :) ]
 
 
 
