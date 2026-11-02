@@ -1,12 +1,22 @@
+<h2 align="center"
+
 <p align="center">
-  <img width="600" height="250" src="https://i.pinimg.com/1200x/86/f1/0d/86f10dde85e7188f8571d58db00dc946.jpg">
+  <img width="1060" height="160" src="https://64.media.tumblr.com/983e0629a56fe062c7f86216eab86095/ac46cc06ca8727c8-b7/s400x600/da3e3d84b47076070bf1bf03c5973fc8cf486d43.pnj">
 </p>
 
-<h6 align="center">
+<p align="center">
+  <img width="5060" height="200" src="https://txt.1001fonts.net/img/txt/b3RmLjgwLmJjYjRiMC5RbXhsYzNObFpDQkJjbVVnVkdodmMyVWdWMmh2SUUxdmRYSnVMQ0JHYjNJZ1ZHaGxlU0JUYUdGc2JDQkNaU0JEYjIxbWIzSjBaV1EsLjA,/grave-shade.regular.webp">
 
-*Yargh! I came for ye booty!*
+<h6 align="center"
 
-*that... be treasure, yknow...*
+<p align="center">
+  <img width="200" height="200" src="https://i.pinimg.com/736x/40/6b/e9/406be9c80cd571e1e863e84389415cf3.jpg">
+</p>
+
+
+<details>
+
+<summary>some of my links</summary>
 
 <a href="https://cheesewezzc.straw.page">
         <img src="https://files.catbox.moe/6hghz0.png" width="60" height="55" alt="Link Image">
@@ -24,15 +34,13 @@
         <img src="https://files.catbox.moe/dnbe98.png" width="60" height="55" alt="Link Image">
   </a>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&cover_image=true&theme=novatorem&show_offline=true&background_color=a68a77&interchange=true&profanity=false&hide_remaster=false&bar_color=b68949&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&redirect=true)
+some links may be worked on in the future, if something is bugged or deleted please inform me.
+soon releasing a carrd for comissions!
 
-<p align="center">
-  <img width="200" height="200" src="https://i.pinimg.com/1200x/6e/5c/8a/6e5c8a9b4b7d8fe25976f5b04fa2ddf4.jpg">
-</p>
+</details>
 
-[ temporary for halloween, happy halloween everyone :) ]
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&redirect=true)
 
-
-
+_________
 
 
