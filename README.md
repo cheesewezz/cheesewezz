@@ -43,4 +43,31 @@ soon releasing a carrd for comissions!
 
 _________
 
+  
+<img align="right" width="200" height="200" src="https://i.pinimg.com/736x/a6/f3/94/a6f3949b9f559f3440156083ebd99dc2.jpg">
+
+Howdy, I'm your chronic music enthusiast who listens to everything (except country)
+
+Currently studying meteorology, I love tornados.
+
+I love horror, gun games, creature games, and story games. I'm a mix-match.
+
+/̵͇̿̿/’̿’̿ ̿ ̿̿ ̿̿ ̿̿
+
+Working to practice for game illustration. (I normally do creature concepts or dinosaurs)
+
+interested in art commissions? [click here](https://cheesewezz.carrd.co) for the carrd!
+
+(currently not set up yet. I suggest not until further notice, 11/2/2026)
+
+<img/>
+
+_________
+
+<h6/>
+
+
+<p align="center">
+  <img width="1060" height="160" src="https://64.media.tumblr.com/758952f6dfe081ab9f38a2a57843b66c/ac46cc06ca8727c8-68/s400x600/68f1d34812f7ae359d2d296094866e3a2054dc6a.pnj">
+
 
