@@ -58,8 +58,6 @@ Working to practice for game illustration. (I normally do creature concepts or d
 
 interested in art commissions? [click here](https://cheesewezz.carrd.co) for the carrd!
 
-(currently not set up yet. I suggest not until further notice, 11/2/2026)
-
 <img/>
 
 _________
