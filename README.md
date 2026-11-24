@@ -26,7 +26,7 @@
     <img src="https://files.catbox.moe/usfjnf.png" width="60" height="55" alt="Link image">
 </a>
 
-  <a href="https://www.patreon.com/c/user/posts?u=85089921">
+  <a href="https://www.patreon.com/cw/u85089921">
      <img src="https://files.catbox.moe/fg4q4h.png" width="60" height="55" alt="Link Image">
  </a> 
 
